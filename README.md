@@ -1,5 +1,5 @@
 # 🖐🏻 About Me:
-🔭 SSr. Front-end — Centrex<br>🌱 Learning identification of usage patterns to improve workflow<br>🌟 See my work — https://dribbble.com/ssxjuan
+🔭 SSr. Front-end — Centrex<br>🌱 Learning identification of usage patterns to improve workflow<br>🌟 See my work on UX — https://dribbble.com/ssxjuan
 
 
 ## 🌐 Socials:
